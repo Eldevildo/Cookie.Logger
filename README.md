@@ -1,3 +1,4 @@
 # Cookie.Logger
-Here u go i take no responsibility for ur actions
+THIS IS USED FOR ROBLOX
 
+I DONT TAKE RESPONSIBILITY FOR UR MALICIOUS ACTIONS!
